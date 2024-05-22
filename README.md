@@ -1,1 +1,1 @@
-# Danny-Dinner-s-Case-Study
+# Dannys-Dinner-Case-Study
